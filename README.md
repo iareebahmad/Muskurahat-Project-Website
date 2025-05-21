@@ -8,7 +8,7 @@
 > 1️⃣ Those who say, *'I don't care what happens to other people as long as it doesn't affect me.'*  
 > 2️⃣ Those who think, *'How can I rip people off and make money from this?'*  
 > 3️⃣ Those who ask, *'How can I help?'*  
-> **Always be the third one.**_
+> **Always be the third one.**
 
 ---
 
